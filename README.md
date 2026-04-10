@@ -4,7 +4,7 @@ https://github.com/apekshakhaladkar-crypto/EDS-Lab/blob/7ee3492e0283a207137649df
 https://acrobat.adobe.com/id/urn:aaid:sc:AP:fb902d34-95dc-4208-8d51-c56b0ffba8eb
 
 #assignment 
-https://docs.google.com/document/d/13EEa-UTm1pE9b-UG6gKH91Pqit3uiMgF5-xpPBa0r8U/edit?usp=drivesdk
+https://acrobat.adobe.com/id/urn:aaid:sc:AP:80ed5150-33d5-44fb-bad8-ed78e364a3cd
 
 
 #YT video link
